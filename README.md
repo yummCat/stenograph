@@ -13,3 +13,5 @@ We decided to make a heart-shaped stenograph. Now, each chord—every word—wil
 ![WhatsApp Image 2025-07-04 at 12 32 25_7635dec5](https://github.com/user-attachments/assets/33ff20b3-7710-4b16-af86-1a38a29f405f)
 
 ![WhatsApp Image 2025-07-04 at 12 31 48_ef6b8525](https://github.com/user-attachments/assets/6afc23eb-7879-4bfa-a840-f96a2aa08b43)
+
+![image](https://github.com/user-attachments/assets/4bf774da-2b85-4a26-adb3-27459b265859)
